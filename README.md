@@ -11,5 +11,6 @@
 ### 10am - 11am cst (8am-9am pst) Organzing preparing for week and capstone, planning capstone project
 ### 11am - 11:30am cst (9am-9:30am pst) scrum
 ### 11:45 am cst - 1:00pm ( 9:45am pst- 11:00am pst) working on frontend and ui/ux skills  https://github.com/simioyin222/LocalBiz
-### 1:10 pm cst - unkown pm ( 11:00am pst - unkwon ) working and using figma finally currently learniung on figma basics creating local biz visualiozaition and code
+### 1:10 pm cst - 3:39 pm  cst ( 11:00am pst - 3:39 pm cst ) working and using figma finally currently learniung on figma basics creating local biz visualiozaition and code , hosted websites of projects, cloned and updated all projects to liking organized showcase more
 ![Untitled – Figma - Brave 4_2_2024 2_23_46 PM](https://github.com/simioyin222/PROGRESS-PT3/assets/141048058/6cb48bf8-f6a2-452e-9a59-b6f579b9cc6c)
+###  3:30 pm cst (1:30apmpst) All repos i want to showcase now availabe for hosting now just need to update portfolio project with images and also hot it can see progress and work here https://github.com/simioyin222/Professional-Portfolio (gonna take hour lunch since i worked through it) 
