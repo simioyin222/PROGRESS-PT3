@@ -12,3 +12,4 @@
 ### 11am - 11:30am cst (9am-9:30am pst) scrum
 ### 11:45 am cst - 1:00pm ( 9:45am pst- 11:00am pst) working on frontend and ui/ux skills  https://github.com/simioyin222/LocalBiz
 ### 1:10 pm cst - unkown pm ( 11:00am pst - unkwon ) working and using figma finally currently learniung on figma basics creating local biz visualiozaition and code
+![Untitled – Figma - Brave 4_2_2024 2_23_46 PM](https://github.com/simioyin222/PROGRESS-PT3/assets/141048058/6cb48bf8-f6a2-452e-9a59-b6f579b9cc6c)
