@@ -19,3 +19,5 @@
 
 ## 04/03 (always 2 hours behind)
 ### 10:38am cst devising plan for capstone team week project organizing and preparing for the day
+### 11:30 am cst start working on portoflio and updating additonal project , planning capstone and roles , preparing for it 
+### 1:35 pm cst finsihed portfolio and updating linkdein and poroject and portfolio https://simioyin222.github.io/Professional-Portfolio/
