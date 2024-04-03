@@ -21,3 +21,7 @@
 ### 10:38am cst devising plan for capstone team week project organizing and preparing for the day
 ### 11:30 am cst start working on portoflio and updating additonal project , planning capstone and roles , preparing for it 
 ### 1:35 pm cst finsihed portfolio and updating linkdein and poroject and portfolio https://simioyin222.github.io/Professional-Portfolio/
+## lunch 2pm - 3pm 
+
+### 3:15pm all work refer to repo for professional portfolio additionally i started back onto brainstorming and cxreatomg stuff for team week prokects that is approaching i have been workring on that and my portfolio https://github.com/simioyin222/Professional-Portfolio
+###  6:14pm still in figma and watching videos to better utuiliuze creating my puzzle and applying those exact styles to code and also brainstorming what teamates can use or do 
