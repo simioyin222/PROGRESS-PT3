@@ -15,3 +15,7 @@
 ![Untitled – Figma - Brave 4_2_2024 2_23_46 PM](https://github.com/simioyin222/PROGRESS-PT3/assets/141048058/6cb48bf8-f6a2-452e-9a59-b6f579b9cc6c)
 ###  3:30 pm cst - 6:45 pm (1:30apmpst) All repos i want to showcase now availabe for hosting now just need to update portfolio project with images and also hot it can see progress and work here https://github.com/simioyin222/Professional-Portfolio (gonna take hour lunch since i worked through it) 
 ### end of day but still wokring on portfolio can see all relebnt updates there 
+
+
+## 04/03 (always 2 hours behind)
+### 10:38am cst devising plan for capstone team week project organizing and preparing for the day
