@@ -31,3 +31,4 @@
 ### 11am cst scrum 
 ### 11:30am cst scrum over 
 ### 11:45 am cst brainstorming , wireframing and prepaing for team week project and getting ready to prepare myself for what i need t contrtibvute
+## 12:54 pm cst starting on setting up project fopr team week and will start prototyping in figma then swithc to linkein learning and white boarding 
