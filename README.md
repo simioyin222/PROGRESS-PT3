@@ -25,3 +25,9 @@
 
 ### 3:15pm all work refer to repo for professional portfolio additionally i started back onto brainstorming and cxreatomg stuff for team week prokects that is approaching i have been workring on that and my portfolio https://github.com/simioyin222/Professional-Portfolio
 ###  6:14pm still in figma and watching videos to better utuiliuze creating my puzzle and applying those exact styles to code and also brainstorming what teamates can use or do 
+
+04/04 
+### 10am - 11am cst (8am-9am pst) Organzing team week project brainsotorming ideas
+### 11am cst scrum 
+### 11:30am cst scrum over 
+### 11:45 am cst brainstorming , wireframing and prepaing for team week project and getting ready to prepare myself for what i need t contrtibvute
